@@ -1,0 +1,1 @@
+# gausah_dibuka
